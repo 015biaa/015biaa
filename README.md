@@ -1,0 +1,5 @@
+- 👋 Oi, eu sou a Bia, normalmente adoro dançar
+- e gravar videos, vamos dizer "vlogs", tenho
+- 15 anos e desde que eu me conheço sempre
+- morei em Sorocaba e sempre gostei de filmes de
+- terror e jogos.
